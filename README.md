@@ -1,1 +1,0 @@
-# Wed-ai-andes-v6.0
